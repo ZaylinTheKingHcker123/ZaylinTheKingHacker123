@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Coding and technologie
 - 🌱 I’m currently learning ...Coding and how to put geography 
 - 💞️ I’m looking to collaborate on ...harmony
-- 📫 How to reach me ... by messaging zaylinmmoe144@gmail.com on google gmail
+- 📫 How to reach me ... by messaging ZMMOE@schools.vic.edu.au or zaylinmmoe144@gmail.comon google gmail
 - 😄 Pronouns: ...happy 
 - ⚡ Fun fact: ...My mums wedding on the 1st
   
